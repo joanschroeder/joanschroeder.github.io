@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+Joan Schroeder has a strong passion for the sciences and seeks to help in the medical world by pursuing the dreams of being a surgical pediatric physicians aisstant. As a biochemistry major at CalPoly, Joan emmerses herself in the world of chemistry through multiple advanced classes and being a member of Alpha Chi Sigma, the national chemistry fraternity.
 
 ### More Information
 
@@ -12,4 +12,4 @@ A place to include any other types of information that you'd like to include abo
 
 ### Contact me
 
-[armcdona@calpoly.edu](mailto:armcdona@calpoly.edu)
+jschro05@calpoly.edu (mailto:jschro05@calpoly.edu)
