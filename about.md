@@ -8,7 +8,7 @@ Joan Schroeder has a strong passion for the sciences and seeks to help in the me
 
 ### More Information
 
-As Joan is interested in the sciences, she also expands her creativity elsewhere in her day to day life. She currently works at two climbing gyms and is a part of the CalPoly Climbing club. Going outdoors for climbing and climbing competitions is what she primarily trains for, but climbing is also a large part of her social life as well. Although climbing is a large part of her life, spending quality time with her friends is a large part as well. Joan often enjoys going to brunch, to the beach, or on local hikes with her close friends on sunny days. For quality alone time, Joan likes to sing, play the ukelele, lift weights, and watch TV. 
+As Joan is interested in the sciences, she also expands her creativity elsewhere in her day to day life. She currently works at two climbing gyms and is a part of the CalPoly Climbing club. Going outdoors for climbing and climbing competitions is what she primarily trains for, but climbing is also a large part of her social life as well. Although climbing is a large part of her life, spending quality time with her friends is a large part as well. Joan often enjoys going to brunch, to the beach, or on local hikes with her close friends on sunny days. For quality alone time, Joan likes to sing, play the ukelele, lift weights, and watch TV. Joan has also participated in many programs during high school, such as a national student leadership conference biotechnology program and a volunteer service trip in Panama through Global Glimpse. Joan has been able to learn and broaden her learning through these experiences in order to further herself towards her ambitions.
 
 ### Contact me
 
