@@ -2,4 +2,4 @@
 layout: post
 title: Welcome!
 ---
-You can change the title above if you want to and then write your content.  
+Joan Schroeder is a science and climbing fanatic that loves going out on adventures on hikes and to the beach!
