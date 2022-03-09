@@ -12,4 +12,4 @@ As Joan is interested in the sciences, she also expands her creativity elsewhere
 
 ### Contact me
 
-jschro05@calpoly.edu (mailto:jschro05@calpoly.edu)
+jschro05@calpoly.edu
